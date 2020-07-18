@@ -1,2 +1,2 @@
-# Jebaka
-to wiadomo
+# Jeba$ pisowców
+# Jeba$ pisowców
